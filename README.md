@@ -19,8 +19,11 @@ Professional Goals
 Tech Skills
   
   Business Analytics
+ 
   Data Science (TripleTen Bootcamp)
+ 
   Machine Learning
 
 Connect with Me
+ 
   https://www.linkedin.com/in/pat-bain-34a118195/
