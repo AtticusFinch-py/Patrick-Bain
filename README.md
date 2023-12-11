@@ -26,4 +26,4 @@
 
 **Connect with Me**
  
-  https://www.linkedin.com/in/pat-bain-34a118195/
+ https://www.linkedin.com/in/pat-bain/
